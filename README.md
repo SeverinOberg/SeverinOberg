@@ -1,3 +1,3 @@
-## Hi there 👋🐲
+# Hi there 👋🐲
 
-## 👾 Currently working on video games and world building 👾
+## Currently working on 🕹️video games🕹️ and 🌌worldbuilding🌌
